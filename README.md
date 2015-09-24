@@ -1,4 +1,4 @@
-# La-costa-del-silencio.
+# LA COSTA DEL SILENCIO.
 
 Hagamos una revolución
 
