@@ -1,9 +1,8 @@
 # LA COSTA DEL SILENCIO.
 
-Hagamos una revolución
-
-que nuestro líder sea el sol, 
-
-y nuestro ejército 
-
-sean mariposas. 
+Ven, quiero oír tu voz, 
+y, si aún nos queda amor, 
+impidamos que esto muera. 
+Ven, pues en tu interior 
+está la solución, 
+de salvar lo bello que queda. 
